@@ -13,5 +13,5 @@ chattagram, Bangladesh
 - English : Intermediate
 - Hindi : Intermediate
 
-#### Contaxct Information 
+#### Contact Information 
 Email : chandnibarua76@gmail.com
