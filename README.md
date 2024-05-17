@@ -5,7 +5,9 @@ Hi I am Chandni Barua Jowthi.  I fond of learning new things, know new somthing,
 
 ## Education 
 BSc. in Computer Science & Engineering
+
 BGC Trust University Bangladesh
+
 chattagram, Bangladesh
 
 ### Language:
